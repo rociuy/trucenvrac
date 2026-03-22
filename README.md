@@ -1,3 +1,6 @@
 # trucenvrac
 ici, ya des choses.
-dedead
+[youtube](https://youtube.com)
+[dede](https://porn3000.com)
+[chatgpt](https://chatgpt)
+[ytdl](https://ytdown.com)
