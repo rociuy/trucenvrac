@@ -4,3 +4,5 @@ ici, ya des choses.
 [dede](https://porn3000.com)
 [chatgpt](https://chatgpt)
 [ytdl](https://ytdown.com)
+[duckduckgo](https://duckduckgo.com)
+[google](https://google.com)
