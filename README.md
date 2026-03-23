@@ -6,4 +6,4 @@ ici, ya des choses.
 [ytdl](https://ytdown.com)
 [duckduckgo](https://duckduckgo.com)
 [google](https://google.com)
-[eaglercraft](http://localhost:8000)
+[eaglercraft](http://126.0.0.1:8000)
